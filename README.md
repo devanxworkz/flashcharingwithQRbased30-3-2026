@@ -1,0 +1,1 @@
+# flashcharingwithQRbased30-3-2026
